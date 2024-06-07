@@ -1,5 +1,12 @@
 #[+[!LIVESTREAMs!]+]Celtics vs. Mavericks: Free live stream, TV, how to watch Game
 
+<b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/nba/">➤►🌍📺📱👉 Celtics vs Mavericks Li𝚟e</a></b>
+
+<b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/nba/">➤►🌍📺📱👉 Celtics vs Mavericks Li𝚟e</a></b>
+
+[![](https://gitlab.com/gitlab-org/growthproject/uploads/530917e2ec5ef3de8f08074ec6ebb5f8/tv-image.gif)](https://sportsonhd.com/hd/nba/)
+
+
 How to watch the Dallas Mavericks vs. Boston Celtics NBA Finals game tonight: Game 1 Li𝚟estream options
 
 
